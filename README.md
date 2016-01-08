@@ -1,1 +1,0 @@
-# ihzaya.github.io
